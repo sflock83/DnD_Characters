@@ -3,8 +3,8 @@
 ![horvir_full.jpg](/horvir_full.jpg)
 
 Mit fast zweieinhalb Metern Körpergröße überragt dieser Horvir seine Umgebung, seine Präsenz so unverrückbar wie massiver Fels.
-Seine in Grautönen gefärbte Haut, wirkt wie gemeißelter Stein.
-Ein streifen schwarzen Haares zieht mittig über seinen ansonsten kahlen Kopf und ein ebenso schwarzer Vollbart fällt von seinem Kinn auf seine Brust.
+Seine in Grautönen gefärbte Haut wirkt wie gemeißelter Stein.
+Ein Streifen schwarzen Haares zieht mittig über seinen ansonsten kahlen Kopf und ein ebenso schwarzer Vollbart fällt von seinem Kinn auf seine Brust.
 
 Horvir’s Gesicht ist ein Kontrast zu seiner massiven Statur.
 Die harten Linien, die seine Züge formen, erzählen von Jahren des Überlebens in einer unwirtlichen Welt. Doch wenn man genauer hinsieht, entdeckt man etwas Unerwartetes: ein Lächeln, das wie ein Sonnenstrahl durch die Wolken bricht.
